@@ -14,12 +14,3 @@
 > **git add filename** - конкретный файл по 
 имени
 
-
-## h.;dhlerlglpwrh;[34;]e'hg';[hn
-
-ehj.whlpe;w;]\e]nh;.r,nmt,rgef;.wd[']frt;ghlkgfr,led;.ws'q
-]fg,hlkmjgf,vde;.sw'
-bg,hn ,bkmflvdswq
-fgbfd;.esw'/q
-fbghn,lfdews
-\nl. ,fdw'trkoprgthkopkptrggrfekomfwe,lp
