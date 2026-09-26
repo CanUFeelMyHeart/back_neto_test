@@ -15,6 +15,11 @@
 имени
 
 
-## 4. **git branch branch_name** - создание ветки
+## h.;dhlerlglpwrh;[34;]e'hg';[hn
 
-## 5. **git branch** - просмотр веток
+ehj.whlpe;w;]\e]nh;.r,nmt,rgef;.wd[']frt;ghlkgfr,led;.ws'q
+]fg,hlkmjgf,vde;.sw'
+bg,hn ,bkmflvdswq
+fgbfd;.esw'/q
+fbghn,lfdews
+\nl. ,fdw'trkoprgthkopkptrggrfekomfwe,lp
